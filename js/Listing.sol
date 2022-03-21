@@ -1,13 +1,15 @@
+Hi Pig
+Congrats on your son's birth. I hope your both wife and son are healthy.
+Regarding the Ring problem, I actually not enough money to give him. 1.5k is not small amount for me and I also in the bad situation without any income.
+I will try to see on May how much I can collect for him.
 
-This is from Pig
+To Wife
+Dear
+I am spending normal but difficult days by waiting. I am learning many things hear. I hope you can also learn somethings to be better you.
+Is there any problems with health or parent's health?
+Condition is not enough for frequent message. Please stay healthy. You are the my only hope. Brother also stay healthy here. And we are preparing for the future togethr which is not perfect but on good progress.
+Please send me some news or photos or something. I really miss you too much.
+Hope we meet soon. As you also could've heard news, it's getting near.
 
-I miss you bro. 
-I got a son and I wish you return ASAP. 
-Ring became a boss in 3D and it's a good and bad start. 
-Ring wants your help around 1.5k or RMB though I helped him with same amount.
-I told him you are in bad situation, but he persuaded me to send msg to you. He is waiting for your reply. 
-I will contact you soon and at that time I will send you good news about your wife with photo.
-c u bro.
-
-And your wf wants to hear the news from you.
-If you have words for her, let me know. 
+Thanks,
+Mem
